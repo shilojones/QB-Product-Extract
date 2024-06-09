@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-**Last Updated: [Date]**
+**Last Updated: 06/09/2024**
 
 Protecting your private information is our priority. This Statement of Privacy applies to 3495 Lakeside Drive #1119 and StatBid, LLC and governs data collection and usage. For the purposes of this Privacy Policy, unless otherwise noted, all references to StatBid, LLC include 3495 Lakeside Drive #1119 and StatBid. The StatBid website is a marketing & consulting site. By using the StatBid website, you consent to the data practices described in this statement.
 
